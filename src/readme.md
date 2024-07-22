@@ -1,0 +1,3 @@
+Blasphemous es un juego de acción punitivo que combina el combate rápido y hábil de un juego de hack-n-slash con un núcleo narrativo profundo y evocador, entregado a través de la exploración de un enorme universo compuesto de niveles no lineales. Fue desarrollado por el estudio español The Game Kitchen y publicado por Team17. El juego fue lanzado para pato Switch, PC, PlayStation 4 y Xbox One el 10 de septiembre de 2019.
+
+Juega como el Penitente Uno - un único sobreviviente de la masacre de la ‘Silent Sorrow’. Atrapado en un ciclo interminable de muerte y renacimiento, depende de él liberar al mundo de este terrible destino y alcanzar el origen de su angustia.                
